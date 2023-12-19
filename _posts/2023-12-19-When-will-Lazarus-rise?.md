@@ -1,5 +1,3 @@
-title: "When-will-Lazarus-rise?"
-date: 2023-12-19
 
 no fucking clue how this works(yet). listening to some absolutely beautiful music, which you should listen to when high. the other side of paradise by glass animals is peak.
 
